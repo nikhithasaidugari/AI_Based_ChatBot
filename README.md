@@ -1,1 +1,1 @@
-# AI_Based_ChatBot
+Unauthorized screenshots, recordings, or reproductions of this repository are strictly prohibited.
